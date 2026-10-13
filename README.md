@@ -1,1 +1,0 @@
-# NTSZKI_PROJECT_1
